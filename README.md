@@ -7,7 +7,7 @@ Ways are long.
 
 Finish time : 2017.12.28 -- the end of 2017 -- is also the begin of 2018
 
-new year,new life
+New year,new life
 
 Challenges are what make life interesting and overcoming them is what makes life meaningful.
 
